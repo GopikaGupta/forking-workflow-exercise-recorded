@@ -1,4 +1,4 @@
-Delicious Fried Rice
+Recipeee for Delicious Fried Rice
 
 # Ingredients
 Carrots
